@@ -3,4 +3,4 @@
 <a href="https://ibb.co/mVkpGK1x"><img src="https://i.ibb.co/gLNY38Hn/Untitled58-20260826182612.png" alt="Untitled58-20260826182612" border="0"></a>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <a href="https://pradapurse.straw.page">strawㅤ ݁ ˖Ი𐑼⋆
-<a href="https://insomniacks.atabook.org">ㅤata
+<a href="https://pinkcellphone.atabook.org">ㅤata
