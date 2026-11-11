@@ -6,6 +6,6 @@
   <summary>ㅤㅤ</summary>
   <p>
     ㅤㅤ
-    <a href="https://github.com/infinitesources">infinitesources <a href="https://github.com/EternalFates">EternalFates <a href="https://github.com/newestalbum">newestalbum <a href="https://github.com/wes-borland">wes-borland <a href="https://github.com/youryummyyummymetalhead">youryummyyummymetalhead <a href="https://github.com/vacillator">vacillator</a>
+    <a href="https://github.com/infinitesources">infinitesources <a href="https://github.com/EternalFates">EternalFates <a href="https://github.com/newestalbum">newestalbum <a href="https://github.com/wes-borland">wes-borland <a href="https://github.com/youryummyyummymetalhead">youryummyyummymetalhead <a href="https://github.com/vacillator">vacillator <a href="https://github.com/slpyJJ">slpyJJ</a>
   </p>
 </details>
