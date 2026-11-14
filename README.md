@@ -15,7 +15,7 @@
 
 <p>
 <em>𝓞omfs ₊⊹</em>　::
-<a href="https://github.com/infinitesources">𑣲 infinite</a>ㅤ
+<a href="https://github.com/infinitesources">𑣲 salmon</a>ㅤ
 <a href="https://github.com/slpyJJ">𑣲 jj</a>
 </p>
 
